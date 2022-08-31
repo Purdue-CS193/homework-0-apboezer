@@ -5,4 +5,3 @@
 - I like the instructors
 - It's slightly smaller than my other classes
 - I like the work
--
